@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Jbrittain123
 - 👀 I’m interested in Technology
 - 🌱 I’m currently learning Mechanical Engineering
-- 💞️ I’m looking to collaborate on Programming projects
+- 💞️ I’m looking to collaborate on Programming Projects
 - 📫 How to reach me jonahbritt2002@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I can play Steel Drums
